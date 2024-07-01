@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Você pode me encontrar em:
+
+[LinkedIn](https://www.linkedin.com/in/danielbchagas/)
